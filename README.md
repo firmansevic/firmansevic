@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Efik Firmansah
 - 👀 I’m interested in data analisys
-- 🌱 I currently teach physics science
+- 🌱 I'm currently teach physics science
 - 💞️ I’m looking for a brand new activity to keep my brain sharp
 - 📫 efikfirmansah@gmail.com
 
